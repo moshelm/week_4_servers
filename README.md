@@ -1,3 +1,3 @@
-Moshe Elmaliach
-Class Negev
+משה אלמליח
+כיתת נגב
 322534348
